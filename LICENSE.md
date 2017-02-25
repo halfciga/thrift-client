@@ -1,1 +1,1 @@
-license to yy.com
+free
